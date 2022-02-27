@@ -1,0 +1,1 @@
+Kimchi (김치) is a collective term for vegetable dishes that have been salted, seasoned, and fermented. The its history goes back to ancient times. Originated from pickled vegetables, there are now hundreds of kimchi varieties in Korea.
